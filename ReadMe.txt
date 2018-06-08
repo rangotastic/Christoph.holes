@@ -1,0 +1,1 @@
+Gedacht für Aufruf auf Smartphone im Hochformat!!
